@@ -6,11 +6,11 @@ Last summer I spent a week on the **Big** island of Hawaii with my family. Our t
 
 ## Big Island Things to-do:
 
-*Snorkeling
-*Spear Fishing
-*Hiking Mauna Kea
+* Snorkeling
+* Spear Fishing
+* Hiking Mauna Kea
 * Volcanoes National Park
-*Helicopter tours
+* Helicopter tours
 
 >There are so many amazing places to eat on the Big Island with fresh seafood options!
 
